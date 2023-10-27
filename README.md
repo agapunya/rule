@@ -1,0 +1,2 @@
+# rule
+masih pemula bg
